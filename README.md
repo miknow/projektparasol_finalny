@@ -1,0 +1,1 @@
+# projektparasol_finalny
